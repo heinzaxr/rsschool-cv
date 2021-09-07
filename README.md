@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ebobei.github.io/rsschool-cv/cv
